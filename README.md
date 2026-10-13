@@ -1,0 +1,2 @@
+# premium-rapier-forging-001-rapier-forging-renaissance-b
+Tired of forging clunky broadswords that feel more like crowbars than elegant weapons? The Rapier Forging &amp; Renaissance Blade Craft Workshop is your guide to mastering the delicate art of creating historically accurate, balanced rapiers—without the guesswork.  This workshop solves the problem of learning specialized rapier forging techniques from s
